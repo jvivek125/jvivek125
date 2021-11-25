@@ -8,3 +8,5 @@
 jvivek125/jvivek125 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+- information
+- it is very unfortunate to see the conditions in tirupathi,kadapa of andhra pradesh state to suffer with the floods due to heavy rains very drastically.the government have to respond very rapidly in this situation to rescue th need.this is one of the worst situations that andhra pradesh has faced till date.the people had lost many of their properties including the houses and the shelter.the food shortage is also affecting the people very badly.the supply should be rapidly one to help the suffered.the govt officials should feel the urgency of the helping the suffering. 
